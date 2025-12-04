@@ -112,4 +112,4 @@ Give a ⭐️ if you like this project!
 
 ---
 
-Made with ❤️ by Sayed Hamza
+Made by Sayed Hamza❤️
